@@ -35,6 +35,8 @@ Breaking news, Priscilla!  Your husband is not a "chief". He is nothing to be ad
 
 ![priscilla](scumbagger_narcissist_meta.png)
 
+<img width="1280" height="2720" alt="image" src="https://github.com/user-attachments/assets/e90809cf-f8b2-436f-a399-1ef9a7b4e156" />
+
 
 <eom_NN:: ::: `do GRANT rest to Asia_langs_translation_streamers.mqe 
                         [for @@import ___8.2__ cycles] > `
